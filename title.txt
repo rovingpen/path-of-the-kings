@@ -1,0 +1,6 @@
+---
+title: Path of the King
+author: Neoalfa
+language: en-US
+cover-image: images/cover.jpeg
+...
