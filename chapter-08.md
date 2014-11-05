@@ -258,7 +258,7 @@ She leaned back against the chair she was currently sitting on. Using her feet a
 
 Everything he did was for the sake of others. No matter how tired he was he still pushed himself forward and gave a little more for other people's happiness, like he desperately wanted to save them from everything. Why would someone do something like that?
 
-*'Because I knew despair and hopelessness once, but I have been saved.* *\
+*'Because I knew despair and hopelessness once, but I have been saved.\
 Now, all I want to* *do is save others from the same fate with my own hands.'*
 
 ***THUMP!***

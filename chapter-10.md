@@ -542,23 +542,23 @@ Sitting behind a desk in a dimly lit room, the man picked up his phone and diale
 
 "It's me," he said when the line connected. "Everything went without a hitch."
 
-"\*The journalists weren't planned,"\* the voice answered.
+*"The journalists weren't planned,"* the voice answered.
 
 "Oh, that was my doing. I couldn't be seen on the scene in person after all, but I still needed someone to bring me some actual facts instead of the bullshit my colleagues would have tried to sell. Besides, I really want to see what he's going to do now that he no longer has the advantage of being considered a myth."
 
-"\*You seem rather taken with this Archer."\*
+*"You seem rather taken with this Archer."*
 
 "How could I not? He's the most exciting thing that ever happened in this shithole of a city. I really look forward to messing around with him."
 
-"\*Do as you please, but try not to get caught in your own games. I would rather not have to look for another semi-competent helper."\*
+*"Do as you please, but try not to get caught in your own games. I would rather not have to look for another semi-competent helper."*
 
 "Your concern is touching," he chuckled. "What about your girl anyway? Are you still going to get her?"
 
-"\*Of course. Setting each pawn in the proper place was the trickiest part. All that's left now is to capture the Queen."\*
+*"Of course. Setting each pawn in the proper place was the trickiest part. All that's left now is to capture the Queen."*
 
 "Suit yourself. I leave you to your machinations. My job is done. I'll be expecting the other half of the payment soon."
 
-"\*As per our agreement,"\* the voice confirmed, before cutting the conversation.
+*"As per our agreement,"* the voice confirmed, before cutting the conversation.
 
 The man put away his phone and stood, just a moment before the door to the room was pushed open, flooding the place with light.
 

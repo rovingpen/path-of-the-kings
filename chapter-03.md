@@ -114,7 +114,8 @@ Already regaining his composure the lone fighter moved to intercept them, and wh
 
 There was a strange sense of resignation in the black clad man's eyes and something that could pass as relief, as he waiting for that moment to arrive for a long, long time.
 
-He watched through his adrenaline enhanced perceptions death reducing the distance.\
+He watched through his adrenaline enhanced perceptions death reducing the distance.
+
 Getting closer.\
 And closer.\
 And closer.

@@ -18,7 +18,7 @@ The circle hummed and illuminated the room with a faint bluish hue, lightning bo
 
 In the enclosed space a strong wind picked up, ruffling her hair and clothes.
 
-\*\*\*"Shut (fill)*. ***** Shut (fill)*. ***** Shut (fill)*. ***** Shut (fill)*. ***** Shut (fill)*. ***** Repeat every five times. Simply, shatter once filled.\*"\*\*
+***"Shut (fill)*. Shut (fill)*. Shut (fill)*. Shut (fill)*. Shut (fill)*. Repeat every five times. Simply, shatter once filled."***
 
 The air simmered above the circle, twisting in preparation to receive the presence that had yet to materialize.
 

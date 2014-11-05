@@ -808,11 +808,13 @@ XXX
 
 ------------------------------------------------------------------------
 
-**- PotK Wiki -**\
+**-- PotK Wiki --**
+
 (Also known as Infodump)
 
-**Twisted Embrace:\
-**The Mystic Code developed by Medea is a Conceptual Armament. Besides being reinforced via extensive Magecraft during its creation, the clothing controls the Concept of "Surface" essentially redistributing the strength at the point of contact to all the surface of the Mystic Code. For that reason in order to break through the material it's necessary to put force superior to the sum of all threads that make the Mystic Code. This is made more difficult by its function to discharge most of the received force on the ground, provided that both of Shirou's feet are firmly planted on the ground.
+**Twisted Embrace:**
+
+The Mystic Code developed by Medea is a Conceptual Armament. Besides being reinforced via extensive Magecraft during its creation, the clothing controls the Concept of "Surface" essentially redistributing the strength at the point of contact to all the surface of the Mystic Code. For that reason in order to break through the material it's necessary to put force superior to the sum of all threads that make the Mystic Code. This is made more difficult by its function to discharge most of the received force on the ground, provided that both of Shirou's feet are firmly planted on the ground.
 
 The downside of this armament is that a blow strong enough to destroy it and kill Shirou (such as a blow from Berserker's sword-axe) would be distributed to all of the body making it lethal even if it just his arm. It's a very doubled edged weapon and it's not intended to be used in combat against Servants but only to grant protection in the general vicinity of their clashing with each other.
 
@@ -824,12 +826,14 @@ The quiver "Space". It's quite simply a folded space that can contain hundred of
 
 The bow: "Intent". Simply put it acts as a catalyst for the user intent. It strengthens Shirou already extraordinary aim and also offers a boost to his focus when using Magecraft. Because she lacked suitable materials, Medea wasn't able to complete this code therefore it has no active enhancements.
 
-**Black Keys:**\
+**Black Keys:**
+
 Many would argue that the Black Keys, being used as thrown weapon most of the time, are disposable and are therefore lost after use. Hence , there shouldn't be any History for Shirou to trace in Ciel's Black Keys.\
 I strongly disagree with this seeing how the Church, much like the Clock Tower, puts a lot of stock on secrecy. The area of an operation is swept thoroughly and all proofs are erased. As such there is no reason for the Black Keys not to be recovered. Seeing how members of the Burial Agency such as Ciel operates mostly alone there's little chance for them to be mixed up with someone else's.
 
-**Ciel:\
-**For those who aren't familiar with Tsukihime (heretics the lot of you) Ciel was the previous incarnation of Roa, a vampire that pursued immortality by transferring his soul/memories to specifically selected hosts. Under Roa's possession she slaughtered her family and turned the inhabitants of her village into her slaves. She was killed by Arcueid but having an incredible potential for Magecraft her body was resurrected with her original personality while Roa moved to the next host (the current one).
+**Ciel:**
+
+For those who aren't familiar with Tsukihime (heretics the lot of you) Ciel was the previous incarnation of Roa, a vampire that pursued immortality by transferring his soul/memories to specifically selected hosts. Under Roa's possession she slaughtered her family and turned the inhabitants of her village into her slaves. She was killed by Arcueid but having an incredible potential for Magecraft her body was resurrected with her original personality while Roa moved to the next host (the current one).
 
 However, since she's technically still Roa in the eyes of Gaia she's caught in a paradox for which she cannot die while Roa still lives. Every time she's wounded or killed, Gaia reverse her time and restores her to the starting condition. For this reason she doesn't age as well and she's much older (how much it was never specified) that what she appears to be.
 

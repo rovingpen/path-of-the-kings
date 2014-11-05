@@ -122,7 +122,7 @@ Perhaps he was just worrying over nothing. Yeah, that was probably the case. Wha
 
 ------------------------------------------------------------------------
 
-<span style="text-decoration: underline;">\_</span>/Interlude: Façade
+\_/Interlude: Façade
 
 A damp, dimly lit room. Stench of rotten flesh saturated the air. A sound of wriggling *things* echoed among the humid walls.
 

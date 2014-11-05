@@ -2,7 +2,8 @@
 
 <span style="text-decoration: underline;">THREE YEARS LATER...</span>
 
-Tohsaka Rin was in a pinch.\
+Tohsaka Rin was in a pinch.
+
 She was walking home with a few female schoolmates for a study session for the upcoming midterm exams. Not that she needed any help with her schoolwork. She was at the top of her age group academically, followed closely by the president of the student's council Issei-san and another unremarkable boy, Emiya-san, the fake janitor as he was called nowadays for his inclination generally helpful to everyone, going as far as taking care of repairs of school appliances. In a sense those two were part of the reason for her current situation. Those two, busy as they were with their respective commitments, managed to keep up with her in school with little apparent effort. It grated on her nerves even though she had her own business to attend beyond school as well.
 
 Still, she couldn't use that as an excuse with his schoolmates, since she couldn't exactly tell then she was a Magus, nor with herself, especially where the Emiya boy was involved. Lately she had learned that he was not only an orphan who lived on his own, but he also had a part time job somewhere in town. That fact by itself couldn't be enough to annoy her, since she knew firsthand how difficult it was being without parents. No what grated on her nerves was the he didn't do it out of need but out of principle. Apparently the boy didn't want to live relying on what his family had left him and set himself to gain his own living.
@@ -15,7 +16,7 @@ Fuyuki city was generally considered by its inhabitant a rather safe place, desp
 
 That was the crux of Tohsaka problem. Following one her friends' suggestion they had cut through a rather dark alley, something even small children were advised not to do. Tohsaka expressed her concern of course, but the rest of the group waved it off nonchalantly. That was Fuyuki city. Nothing ever happened there.
 
-*'So,'* She sighed inwardly as she looked the scene around her unfold, \*"why are we surrounded by five men whose idea of fun involves a lack of clothing on our part?\*' She wanted to ask of her now frightened schoolmates. Why did people choose to ignore wise advices until it was too late?
+*'So,'* She sighed inwardly as she looked the scene around her unfold, *'why are we surrounded by five men whose idea of fun involves a lack of clothing on our part?'* She wanted to ask of her now frightened schoolmates. Why did people choose to ignore wise advices until it was too late?
 
 "Ah, come on kittens," one of the man said. "Don't be scared. We ain't gonna hurt you. Well... it might hurt at first, but it gets better after a while," he chuckled at his own joke.
 
@@ -27,7 +28,8 @@ That was the crux of Tohsaka problem. Following one her friends' suggestion they
 
 "How about we cut this shit and find out for real, hm?" the first one asked.
 
-"If you touch any of us," Tohsaka growled, "you are going to regret it."\
+"If you touch any of us," Tohsaka growled, "you are going to regret it."
+
 She actually could wipe the floor with those guys, but that meant using her thaumaturgy and exposing her nature as a Magus to her classmates. She wasn't sure she could deal with all five of them before one managed to hurt one of her friends. Even though she could hypnotize them afterwards and erase their memories, she couldn't be certain she could do it without anyone being harmed before or slipping away before she was done. If anyone managed to escape her, and reveal the existence of magic, she was going to get in big troubles with the Association, not to speak of the blow on her reputation as guardian on the land.
 
 She bit her lip in frustration. No matter how much she thought about it she couldn't come up with a foolproof plan to keep her friends safe and not expose her secrets. For all the wrong reason the thug interpreted the uncertainty in her eyes as the proof of her already obvious bluff.
@@ -38,7 +40,8 @@ She bit her lip in frustration. No matter how much she thought about it she coul
 
 The man had barely time to shift his gaze from Rin to the speaker when something impacted right between his eyes with a loud *thwack.* The man tumbled backward while all the presents turned to face the newcomer.
 
-He stood at the end of the ally, completely dress in black clothing. The upper part of his face down to his nose was hidden behind a mask of the same color, his hairs where equally hidden by a hood which casted ominous shadows on what little was visible of his eyes. In his hands was a strangely shaped bow again of the same color. For all means and purpose he could have been just another shadow.\
+He stood at the end of the ally, completely dress in black clothing. The upper part of his face down to his nose was hidden behind a mask of the same color, his hairs where equally hidden by a hood which casted ominous shadows on what little was visible of his eyes. In his hands was a strangely shaped bow again of the same color. For all means and purpose he could have been just another shadow.
+
 A shadow that took human shape and descended upon the wicked to account them for their sins. Black as the night, dark as a nightmare. It was hard to believe he was tall as a boy in his teen and from the sound of his voice just as old.
 
 "What the fuck? The hell are you?" one of the men asked. His answer came in the shape of an arrow again between his eyes.
@@ -245,7 +248,8 @@ She blinked. Her eyes were playing tricks on her. She looked again.
 
 \#1 - Emiya Shirou.
 
-Nope. The name at the top still wasn't hers. Her left eyebrow twitched in annoyance, but she gave on other outward sign of her growing inner turmoil. For some sort of miracle the *Fake Janitor* managed to steal her rightful place from under her feet. How could she bear to be number 2?\
+Nope. The name at the top still wasn't hers. Her left eyebrow twitched in annoyance, but she gave on other outward sign of her growing inner turmoil. For some sort of miracle the *Fake Janitor* managed to steal her rightful place from under her feet. How could she bear to be number 2?
+
 Apparently she didn't have to.
 
 Her gaze fell on the name below.

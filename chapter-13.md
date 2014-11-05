@@ -364,7 +364,7 @@ Hiding some *in her body*, charmed so that they would continue their trip down h
 
 Meanwhile, the rush of beasts had finished and Rin took advantage of Yukiko temporarily getting away from her cell to check on the situation to use the first of her jewels in the only way that made sense.
 
-"***Sprengkraft!***" she announced, throwing the jewel while shielding her face with the other arm.
+***"Sprengkraft!"*** she announced, throwing the jewel while shielding her face with the other arm.
 
 The metal bars exploded violently in a burst of flames, sending debris against the opposite wall and flooding the corridor with thick smoke.
 
@@ -688,7 +688,7 @@ Vincent left hand burned, and the mark of his Command Seals faded away, denied b
 
 ------------------------------------------------------------------------
 
-\*\*\*" I am the bone of my Sword."\*\*\*
+***" I am the bone of my Sword."***
 
 The words were spoken by his mouth, but they came from a place far more distant and yet exceedingly close. They meant nothing to the world at large but they meant everything to him. He couldn't quite comprehend the magnitude of such a declaration, but he could feel it nonetheless. It was like a switch had been turned on inside of him.
 
@@ -806,7 +806,7 @@ Dojima wasn't a fan of horror movies. Frankly, he didn't find them even half-int
 
 He honestly thought that, so he felt a bit of a fool when he turned in the direction of the scream when, according to his opinion, a smart man would have walked away in the same circumstances. A cop, alone in a forest at night hears a woman's scream and goes to investigate? Yeah, if that was a movie how many viewers would bet on the detective walking back on his own two feet?
 
-\*'Not many,\*' he thought to himself. But he still was a cop, and helping people was his job. If he wanted a life without risks he should have gone for another employment. And there he was, checking the surrounding without making any noise. There was no telling what could have happened to make a person scream like that, and if he had to find out he'd rather get the drop on whomever was on the scene.
+*'Not many,'* he thought to himself. But he still was a cop, and helping people was his job. If he wanted a life without risks he should have gone for another employment. And there he was, checking the surrounding without making any noise. There was no telling what could have happened to make a person scream like that, and if he had to find out he'd rather get the drop on whomever was on the scene.
 
 Noticing some movement he hid behind a tree and noticed girl dressed in red rush past him and to the side of an unconscious girl. He saw her put the other girl on her shoulders with a surprising show of strength for a girl. Well, it looked like with that added weight she wouldn't try to run if he got closer.
 
@@ -836,7 +836,7 @@ Damn, he was so close in getting the answers he wanted but he couldn't just leav
 
 "My car isn't too far from here," he answered holstering his gun. "Let's get back and I'll call some reinforcement. Whomever did this isn't getting away."
 
-"\*\*I know..."\*\* Tohsaka said with a strangely echoing voice. Dojima found out that he couldn't look away from her eyes. **"Take us to your car and drive us back into town."**
+**"I know..."** Tohsaka said with a strangely echoing voice. Dojima found out that he couldn't look away from her eyes. **"Take us to your car and drive us back into town."**
 
 He nodded. That seemed like the right thing to do. Without a word he walked ahead of them to his car. When they reached it they climbed inside. He helped to put Kazama on the rear seat and then he took his place at the wheel.
 
@@ -890,7 +890,7 @@ Closing the door behind her she escorted Dojima back to his car and gave him one
 
 **"Return to what you were doing before following your suspect. You will remember nothing of this night and will just think you have fallen asleep."**
 
-The wording of her command was a bit dangerous. For instance, if he had been driving when he began his chase, then he would have no recollection of stopping the car and falling asleep. Of course, \\ he would eventually chalk that up to exhaustion. The only thing that mattered was breaking his connection to events he shouldn't be aware of. If he ended up with some unanswered questions, then it was acceptable.
+The wording of her command was a bit dangerous. For instance, if he had been driving when he began his chase, then he would have no recollection of stopping the car and falling asleep. Of course, he would eventually chalk that up to exhaustion. The only thing that mattered was breaking his connection to events he shouldn't be aware of. If he ended up with some unanswered questions, then it was acceptable.
 
 Dojima nodded and returned to his car, leaving behind the female Magus to proceed with the procedure to heal the other girl.
 
@@ -972,7 +972,7 @@ And so she cried, and cried, and cried for hours on end, until the world became 
 
 She could hear someone talking, but the meaning of the word escaped her.
 
-\*'At least let me die in peace,"\* she managed to think from the depths of the darkness her mind had receded into. But once again her wish was unheard.
+*'At least let me die in peace,"* she managed to think from the depths of the darkness her mind had receded into. But once again her wish was unheard.
 
 **"..."**
 

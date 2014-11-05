@@ -206,15 +206,15 @@ He'd have to start looking into her acquaintances, starting for her school, whic
 
 ... Wait, Homurahara Gakuen?
 
-\*" Why are you looking for Archer? Is what he's doing wrong?"\*
+*" Why are you looking for Archer? Is what he's doing wrong?"*
 
 *[...]*
 
-"\*Sorry kid. I'm afraid that justice and law don't go hand in hand."\*
+*"Sorry kid. I'm afraid that justice and law don't go hand in hand."*
 
 *[...]*
 
-"\*I'm sorry for troubling you. But I'm not sorry for what I'm doing. There are times when the law isn't enough to protect the innocent."\*
+*"I'm sorry for troubling you. But I'm not sorry for what I'm doing. There are times when the law isn't enough to protect the innocent."*
 
 Well, well, well. How many chance were there that it was just a coincidence? Emiya Shirou was one of his prime suspects, and now he suddenly jumped at the top of his list. A mere coincidence? Possible, but unlikely. Maybe keeping a discreet eye on the boy would work better that overtly stick his nose too close. If the boy actually were Archer, seeing him snooping around would only cause him to be more attentive.
 
@@ -404,11 +404,11 @@ She picked up her phone and dialed a number.
 
 "It's done, Master. The sedative has taken effect. She is completely out of it and will remain like that for ten hours at least."
 
-"\*The recovery team is already coming your way,"\* the voice on the other side answered. *"Take the girl and return to me at once."*
+*"The recovery team is already coming your way,"* the voice on the other side answered. *"Take the girl and return to me at once."*
 
 "Yes, Master. I'll be back at your side as soon as I can. I missed you so much this past week, my love."
 
-"\*So did I, pet,"\* the voice laughed coldly. *"So did I."*
+*"So did I, pet,"* the voice laughed coldly. *"So did I."*
 
 ------------------------------------------------------------------------
 

@@ -192,7 +192,7 @@ If Dojima had blinked in that moment, he knew he would have missed it entirely. 
 
 "Oh shit," he swore when his brain kicked in and he realized what he had seen. What appeared to be two people had flown down from the sky and landed behind that wall. This wasn't what he was expecting when he had went there that night and yet it was the confirmation that something unnatural was going on in Fuyuki, something beyond the comprehension of common human beings.
 
-He was still considering his options, but his body was already on the move. Opening the zipper of his duffle bag, he extracted a few items from his "*insurance package*" and then stepped out of the car.
+He was still considering his options, but his body was already on the move. Opening the zipper of his duffle bag, he extracted a few items from his *"insurance package"* and then stepped out of the car.
 
 His heart was beating madly in his chest. Beyond those walls there was something going on that he had no experience with; something that he didn't know how to deal with. Something that might very well kill him in ways he didn't want to imagine.
 
