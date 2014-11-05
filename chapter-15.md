@@ -344,7 +344,7 @@ In short he had been a complete fool and the responsibility of losing centuries 
 
 "Ah, Waver," the old man acknowledged, "always in a rush, just like the rumor says. It is no wonder you hardly ever visit these days."
 
-"I'm sorry," he replied coldly, "I was under the impression that the last time we met like this I was told, and I quote, *'to hurry up and work my back off to restore to prestige I contributed to tarnishing'*.\*"\*
+"I'm sorry," he replied coldly, "I was under the impression that the last time we met like this I was told, and I quote, *'to hurry up and work my back off to restore to prestige I contributed to tarnishing'*."
 
 "Yes," the old man admitted without remorse or shame, "that is what we said back then and I must admit that you have exceeded all our expectations, though the road to return to our former prestige is still quite long."
 

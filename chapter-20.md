@@ -112,11 +112,11 @@ On cue, Dojima's face appeared from the liquid sphere lying at the opposite end 
 
 "What is that you want from Shirou that's worthy enough to risk your life?" she demanded to know. Ignorance was a weakness she couldn't afford at this point in time.
 
-"*Vincent Guilford's Rule of Blood*," came the carefully measured reply.
+*"Vincent Guilford's Rule of Blood,"* came the carefully measured reply.
 
 "..." Medea didn't answer with words, but the temperature around her dropped considerably. The thought that all of this had happened because of her former Master served only to fuel her resentment even further. Perhaps sensing her cold rage, the nameless Magus hastily proceeded to clarify.
 
-"\*Don't misunderstand me, if I hadn't been ordered to acquire it I would have nothing to do with anything that man had laid his hands on."\*
+*"Don't misunderstand me, if I hadn't been ordered to acquire it I would have nothing to do with anything that man had laid his hands on."*
 
 "Regardless of what your intentions are, what makes you think my Master would part with such a valuable and dangerous thing such as that. What do you have to offer in exchange?"
 

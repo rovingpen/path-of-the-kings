@@ -1,6 +1,7 @@
 # Chapter 1 -- Through Flames And Ashes
 
-Flames encompassed everything.\
+Flames encompassed everything.
+
 They burned and consumed the land, raging toward the darkened sky as if cursing it for its distance yet longing for its peacefulness. Screams of pain, anguish and despair filled the air like smoke. Scorched bodies lay on the equally burned ground. A testament to the merciless fury of the fire. Malice saturated the atmosphere like a thick blanket.
 
 In this infernal scenario a single red haired boy stood on shaky legs. Surrounded by devastation he pushed himself forward with heavy steps, toward an uncertain direction and a much more certain death. Every movement brought him a new wave of pain. Every single breath filled his lungs with smoke, burning him from the inside.
@@ -89,7 +90,8 @@ All in all Shirou's life was pretty good every day. The nights, however, were no
 
 ------------------------------------------------------------------------
 
-*A tower stood in front of him. Dark. Ominous. He had seen it before, though he couldn't remember where or when. It filled him with \*\*\*\* and \*\*\*\*\*\*\*. Whatever it was its nature was perverse and twisted. He wanted to leave, to turn around and run but his legs were frozen. All he could do was watch it. And being watched in return.\
+*A tower stood in front of him. Dark. Ominous. He had seen it before, though he couldn't remember where or when. It filled him with \*\*\*\* and \*\*\*\*\*\*\*. Whatever it was its nature was perverse and twisted. He wanted to leave, to turn around and run but his legs were frozen. All he could do was watch it. And being watched in return.
+
 It was alive. He knew as much. He could almost see \*\*\*\*\*\* floating in the dark sphere that hovered above it. It had no eyes but it looked at Shirou like he had been denied. Shirou knew, if it had a mouth it would speak, and its words would have been dark curses for it was \*\*\*\*\* \*\*\*\*. Its existence was hate. Its purpose was \*\*\*\*\*\*\*. Given the chance it would reach out and \*\*\*\*\* him apart, \*\*\*\*\*\*\* his mind, \*\*\*\*\*\*\* his soul. If it only had the chance....*
 
 ------------------------------------------------------------------------
@@ -176,9 +178,9 @@ Emiya Shirou stared at the lifeless body of the man that had become his father. 
 
 Tears streamed down Shirou's face. For a long time he knew that his father was going to die due to the curse place upon him by the corrupted Holy Grail but it didn't make it any easier for him. He just sat there, enjoying the last moments on Earth with him, pondering his passing words.
 
-"*Don't worry dad. I'll become a person capable of saving everyone in you place," he told him, restating his first promise.*
+*"Don't worry dad. I'll become a person capable of saving everyone in you place," he told him, restating his first promise.*
 
-"\*Is that so? I'm relieved then. I'll leave things in your hands but remember, you can't save anyone if you don't save yourself first. If you just throw your life away like I did nothing will be truly accomplished. Promise me Shirou. Don't forget to save yourself."\*
+*"Is that so? I'm relieved then. I'll leave things in your hands but remember, you can't save anyone if you don't save yourself first. If you just throw your life away like I did nothing will be truly accomplished. Promise me Shirou. Don't forget to save yourself."*
 
 He had promised, even though he didn't understand why he asked such a thing. He had already been saved once. Surely it was now his turn to save others. That purpose was the only thing that suppressed the guilt of having survived whereas others did not. Of course he wasn't just going to throw his life away, but wasn't a hero supposed to put other people lives before his own? He didn't understand, but he promised anyway, unable to argue with his father in his last moments of life. He could figure out the meaning behind his words afterwards.
 

@@ -362,7 +362,7 @@ He fished out an envelope from his back pocket. "Here's a copy. I spent last nig
 
 "Anytime," he acknowledged. "I've got to go now. Lunch break is almost over and I still have to eat."
 
-"\*\*\*GROOOOWL!"\*\*\* Tohsaka's stomach announced loudly.
+***"GROOOOWL!"*** Tohsaka's stomach announced loudly.
 
 "And so do you from the look of things," he added, sweatdropping at the annoyance he saw on her face. It was undoubtedly caused by the second betrayal perpetrated by her stomach in a couple of days. "I have an extra bento, you know? Want to join me?"
 

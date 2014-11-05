@@ -8,15 +8,15 @@ With his back leaning against the concrete walls he picked up a cell phone from 
 
 "It's me," the man spoke. "The bait seems to have worked."
 
-"*I did not expect any less,*" the person on the other side of the line finally spoke. The voice wasn't distorted in any way but it still was impossible to identify the gender or the age of the speaker.
+*"I did not expect any less,"* the person on the other side of the line finally spoke. The voice wasn't distorted in any way but it still was impossible to identify the gender or the age of the speaker.
 
 "I don't understand. If you wanted this one, why go after the other?"
 
-"\*You need not to concern yourself with things like that,"\* the voice said, and although he detected no change in tone , the man could swear he picked an '*or else'* somewhere in that sentence.
+*"You need not to concern yourself with things like that, *"the voice said, and although he detected no change in tone , the man could swear he picked an '*or else'* somewhere in that sentence.
 
 "Very well," he said after a calculated moment of pause. "I will continue observing then. Or should I start with the second part of the plan already?"
 
-"\*There is no need to hurry. Let the prey squirm a little more"\*
+*"There is no need to hurry. Let the prey squirm a little more"*
 
 "You are treating this one with particular care. Why the special treatment?"
 
@@ -24,23 +24,23 @@ With his back leaning against the concrete walls he picked up a cell phone from 
 
 "Right, I'll mind my own business. Whatever. It's not like I give a damn so long as you pay up. Your other... associates, however, won't be happy with what you have in mind for them."
 
-"\*They are... expendable,"\* the voice said calmly.
+*"They are... expendable,"* the voice said calmly.
 
 "You are saying that like I wasn't," the man chuckled darkly.
 
-"\*If anything, the awareness of your own limited usefulness makes you less so. And speaking of associates, what is the situation with yours?"\*
+*"If anything, the awareness of your own limited usefulness makes you less so. And speaking of associates, what is the situation with yours?"*
 
 "I've got things under control," the man said confidently. "You'll have no problem from them on this. Still, I'm afraid that there might be a third player in the game."
 
-"\*What do you mean?"\*
+*"What do you mean?"*
 
 "Somebody has been asking the wrong kind of questions lately, and I'm afraid that no amount of money can buy loyalty. On the other hand it can loose more than a few tongues."
 
-"\*Do you have any idea of who might be taking an interest in my businesses?"\*
+*"Do you have any idea of who might be taking an interest in my businesses?"*
 
 "Well, for what I know you haven't crossed any of the local groups, so we can safely exclude them from the list. My colleagues are completely out of the loop and I would know if it was any different. That either means you have someone else out to get you specifically that I'm not aware about or..."
 
-"\*Or?"\*
+*"Or?"*
 
 The man grinned in the darkness. "What do you know about the guy that goes by Archer?"
 
@@ -154,7 +154,7 @@ He had no intention to cause trouble for anyone, but he definitely couldn't back
 
 XXX
 
-"\*Emiya Shirou, please report to the faculty office. I repeat. Emiya Shirou, please report to the faculty office."\*
+*"Emiya Shirou, please report to the faculty office. I repeat. Emiya Shirou, please report to the faculty office."*
 
 The loud speaker situated in every classroom told Shirou that something was afoot. He wasn't one to get in trouble, publicly at the very least. That either meant something came up from outside the school or that something happened at the Archery Club. Being still lesson hour the latter was unlikely, but with his only guardian working inside the school and with no other relative he couldn't imagine just what this could be about.
 
@@ -410,23 +410,23 @@ The man took put the cell phone and dialed the usual number. He waited for the s
 
 "It's done," he said. "All that's left now is to see if this new fish will actually bite the bait."
 
-"\*You seem rather confident,"\* the genderless person answered on the other end on the line.
+*"You seem rather confident,"* the genderless person answered on the other end on the line.
 
 "I don't really care. I'm just going to have fun with this."
 
-"\*Try not to get too distracted. You cannot afford it."\*
+*"Try not to get too distracted. You cannot afford it."*
 
 "Meh. You worry too much. What's life without some amusement?"
 
-"\*Especially when it's at other people expenses."\*
+*"Especially when it's at other people expenses."*
 
 "Uh uh. See? You do understand."
 
-"\*Perhaps. For now let's see what this guy can actually do."\*
+*"Perhaps. For now let's see what this guy can actually do."*
 
 "You don't sound concerned."
 
-"\*Why would I be? Either way this goes it's my victory. They all are pawns on my board."\*
+*"Why would I be? Either way this goes it's my victory. They all are pawns on my board."*
 
 "Eh. I guess we'll see how it goes, don't we?"
 

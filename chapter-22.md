@@ -252,7 +252,7 @@ Dinner was consumed in loud company, just like any event where Taiga was involve
 
 "What the...?" He reached for the remote, increasing the sound and interrupting the ongoing conversation.
 
-\*" ... the funeral of Tohno Makihisa, one of the most influential businessmen in the area, will take place in three days. The heirs have been unreachable for comments as well as...."\*
+*" ... the funeral of Tohno Makihisa, one of the most influential businessmen in the area, will take place in three days. The heirs have been unreachable for comments as well as..."*
 
 "Well damn," Shirou muttered, lowering the audio again.
 
