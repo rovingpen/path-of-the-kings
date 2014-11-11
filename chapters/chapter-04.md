@@ -2,9 +2,9 @@
 
 (Beta: RavingScholar)
 
-When Detective Ryutaro Dojima had moved to Fuyuki two years ago, he'd been happy. It was the kind of place where he wanted his daughter Nanako to grow up: lively and densely populated, but without the high crime rate of some other large cities.
+When Detective Ryutaro Dojima had moved to Fuyuki two years ago, he'd been happy. It had seemed like a good place for Nanako to grow up: large and lively, but without the high crime rate of some other large cities.
 
-He should have known better. Twenty years in law enforcement had taught him lack of evidence was not evidence of absence. His colleagues were lazy and incompetent. They were all too eager to dump a difficult case on someone else's lap. That was why *he* was investigating Archer, the masked teen vigilante.
+He should have known better. Twenty years in law enforcement had taught him lack of evidence was not evidence of absence. His colleagues were lazy and incompetent---too eager to dump a difficult case on someone else's lap. That was why *he* was investigating Archer, the masked teen vigilante.
 
 The boy complicated every case he touched.
 
