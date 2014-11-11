@@ -23,7 +23,7 @@ Against the temptation to give up, to cast away his dreams, to live content with
 
 *'Never.'*
 
-That single minded conviction, that naïve stubbornness, that resolve was the fulcrum of his flawed existence.
+That single minded conviction, that naïve stubbornness, that resolve was the root of his flawed existence.
 
 He grit his teeth, his muscles tightened and his Od flowed through his circuits. The pain had been cast away, the fear crushed, the doubts destroyed. As a human he couldn't hope to win against a Servant. But he wasn't just a man anymore.
 
@@ -33,9 +33,11 @@ The Noble Phantasms within the <span style="text-decoration: underline;">Gate of
 
 *'Iron is my blood and Glass is my Heart...'*
 
-Another salve of weapons flew toward him like oversized arrows.
+Another salve of weapons raced toward him like oversized arrows.
 
-Gilgamesh's arrogance was his ultimate weakness. Victory was to be achieved on his terms or not at all. He didn't even consider of drawing <span style="text-decoration: underline;">Ea</span>, the Sword of Rupture. In response <span style="text-decoration: underline;">Rho Aias</span> sprung into existence, pulled from the Hill of Swords by a nudge of the boy's mind, hopelessly crushing the thrown blades.
+Gilgamesh's arrogance was his ultimate weakness. He would not draw <span style="text-decoration: underline;">Ea</span>, the Sword of Rupture, against someone he considered a lesser being.
+
+In response <span style="text-decoration: underline;">Rho Aias</span> sprung into existence, pulled from the Hill of Swords by a nudge of the boy's mind, hopelessly crushing the thrown blades.
 
 *'I have withstood untold pains to create countless weapons...'*
 
