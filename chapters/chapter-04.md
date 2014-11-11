@@ -20,11 +20,11 @@ Dojima's laptop froze, beeped, and shut down. "What the hell," he said, when pre
 
 "Uh, okay, but you can use my computer if you want to," he offered.
 
-"So that you put off doing your own work? Not likely. Besides, I like paper---it's more reliable than these modern pieces of shit."
+"So that you can put off doing your own work? Not likely. Besides, I like paper---it's more reliable than these modern pieces of shit."
 
-Five minutes later he was standing in the open doorway of the archive room with a blank expression and an open mouth. The place couldn't have been cleaned since the case files had been digitized. Cursing his colleagues, but too prideful to go back and eat his word with Adachi, he rolled up his sleeves and began searching for the folder he needed.
+Five minutes later he was standing in the open doorway of the archive room with a blank expression and an open mouth. The place probably hadn't been cleaned since the case files had been digitized. Cursing his colleagues, but too prideful to go back and eat his word with Adachi, he rolled up his sleeves and began searching for the folder he needed.
 
-Sixteen hours, on the dawn of the next day, he emerged with deep bags under his eyes. He hadn't found what he's hoped for but his research had been far from fruitless.
+Sixteen hours later, on the dawn of the next day, he emerged with deep bags under his eyes. He hadn't found what he's hoped for, but his research had been far from fruitless.
 
 A teenager going vigilante in a city as quiet as Fuyuki hadn't made sense to Dojima. The boy was too capable to be just a kid living up a childhood dream, but until that point Ryutaro couldn't figure out why someone so young would push himself to acquire such skills when there was no real need for it. Sure, the crimes he prevented there very real, but there wasn't so much apparent criminality in Fuyuki and the neighboring cities to explain something like that.
 
