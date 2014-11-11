@@ -2,33 +2,21 @@
 
 (Beta: RavingScholar)
 
-When Detective Ryutaro Dojima had moved to Fuyuki two years ago, he'd been happy. It had seemed like a good place for Nanako to grow up: large and lively, but without the high crime rate of some other large cities.
+When Detective Ryutaro Dojima had moved to Fuyuki two years ago, he'd been happy. It had seemed like a good place for Nanako to grow up: large and lively, but relatively safe compared to most cities its size.
 
-He should have known better. Twenty years in law enforcement had taught him lack of evidence was not evidence of absence. His colleagues were lazy and incompetent---too eager to dump a difficult case on someone else's lap. That was why *he* was investigating Archer, the masked teen vigilante.
+He should have known better. Twenty years in law enforcement had taught him that lack of evidence was not evidence of absence. His colleagues were lazy and incompetent---too eager to dump a difficult case on someone else's lap. That was why *he* was investigating Archer, the masked teen vigilante.
 
-The boy complicated every case he touched.
+The boy complicated every case he touched. He appeared and disappeared without a trace---forensices was as at loss for words. Archer could sneak inside a warehouse, dispatch twenty armed criminals with a bow and arrows, tie them up, tip the police, and then vanish.
 
-The law's officers took advantage of the boy's exploits when they managed to cover up his involvement while denouncing his action publicly when they couldn't. For over a year they kept denying his existence, until the number of witnesses was too high to continue doing. While Ryutaro couldn't condone Archer's escapades since vigilantism was a crime, he couldn't forgive his colleagues behavior either and he didn't make a secret out of it. To say that he was disgusted was a gross understatement and that, paired with his work ethic, made him a pariah within the department with the sole exception of his kohai Adachi. Of course while his colleagues dislike him with a passion they didn't dare to cross him either. For one, the man was hard as a brick wall and no amount of enmity would so much as make him flinch, and second he had the support of the higher ups for the same reason. All in all, Ryutaro Dojima was a man not to trifle with.
+There were too many questions and almost no answers. Evidence suggested a boy of fourteen to sixteen years old, but even that wasn't certain, and even if it was, there were thousands of boys in Fuyuki that fit the description.
 
-While knowing all that made him quite proud with himself, it greatly impaired his work. Being new to the city meant that he didn't have nearly the same amount of knowledge the rest of the detectives had. Thus, he had to rely a great lot on the flabby Adachi who had lived and worked in Fuyuki his entire life. The man however, while good natured and well meaning, was as reliable as a house of cards on a windy day, further complicating Ryutaro's work and life in general.
+The recent cases hadn't added anything new, and all Dojima had left was his resolve not to give up.
 
-Furthermore, the Archer case was all but simple. The kid was no pushover. He came and went as he pleased without leaving as much as a trace behind. The forensic department was as at loss for words. There was no way someone could sneak inside a warehouse, dispatch ten to twenty armed criminals, with bow and arrows of all things, tie them up, tip the police and leave the place like he hadn't even been there to begin with. It was mind boggling that a teenager could do that by himself. That kind of stuff was impossible for everyone but an agent of some foreign secret service with a lot of backup. In all honesty Ryutaro didn't know where to begin looking for someone like that.
+Dojima's laptop froze, beeped, and shut down. "What the hell," he said, when pressing the power button failed to turn it back on. "Just what I need. Adachi!" he called.
 
-There were too many questions and not the shadow of an answer in sight. The only thing they were fairly certain of was his age, since his height and voice were confirmed by the many witnesses to be of a boy from fourteen to sixteen years old. That was, unless he was in fact a secret agent of twice that age, with a stunted growth that mimicked a younger voice. Of course the few individuals that matched the physical description of the vigilante over the age of twenty in the range of fifty kilometers from the city had been already investigated without the slightest result. Therefore, unless the guy bothered to commute to fight the nearly nonexistent crime of Fuyuki while there were other cities with a lot more needed work, he had to be a minor residing in the area without an independent mean of transportation.
+"W-What is it, Dojima?" The scrawny detective asked as he peeked into Dojima's office.
 
-Too bad that there were thousands of boys that fit that description.
-
-The recent cases didn't have any information he could use and the witnesses didn't interact with the vigilante long enough to figure out anything about him beside his apparent age. He had absolutely nothing but his resolve not to give up.
-
-Let it not be said that luck doesn't smile upon the stubborn. Then again, the threshold between a blessing and a curse is often a line so very thin that stepping beyond is unavoidable.
-
-That was one truth that Ryutaro Dojima was about to discover at his own expense.
-
-"What the hell?" He grumbled as his laptop froze while he was browsing the previous cases. With a loud beeping noise it shut down and refused to boot up again. "Wonderful; just what I needed at a time like this. Adachi!"
-
-"W-What is it, Senpai?" The scrawny detective asked as he peered inside Dojima's office.
-
-"This blasted thing stopped working. Call the maintenance guy for me, would you? I'm going to the archive."
+"This blasted thing stopped working. Can you take care of it for me? I'm going to the archive."
 
 "Uh, okay but... you can use my computer if you need," he offered.
 
