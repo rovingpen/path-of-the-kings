@@ -8,7 +8,7 @@ He should have known better. Twenty years in law enforcement had taught him that
 
 The boy complicated every case he touched. He appeared and disappeared without a trace---forensices was as at loss for words. Archer could sneak inside a warehouse, dispatch twenty armed criminals with a bow and arrows, tie them up, tip the police, and then vanish.
 
-There were too many questions and almost no answers. Evidence suggested a boy of fourteen to sixteen years old, but even that wasn't certain, and even if it was, there were thousands of boys in Fuyuki that fit the description.
+There were too many questions and almost no answers. Evidence suggested a boy of fourteen to sixteen years old, but even that wasn't certain, and even if it was, there were thousands of boys in Fuyuki that fit the description.``
 
 The recent cases hadn't added anything new, and all Dojima had left was his resolve not to give up.
 
