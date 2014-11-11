@@ -513,11 +513,3 @@ Adachi wasn't a fool. The money for him was just an added bonus to the amusement
 It was better to lay low for a while, but that didn't mean he would remain inactive. He had to make sure that whatever had happened to his "business partner" hadn't exposed him as well. So far he only had an address out of town linked to the telephone number he used to contact him. He wasn't stupid enough to go check out the place immediately. Someone might keeping an eye on it, after all.
 
 He could, however, take a look into that Tohsaka girl's life and see why a man was willing to pay considerable amounts of money to get his hands on her. Certainly, if someone was willing to go to such lengths, then there had to be something worth the effort, right?
-
-------------------------------------------------------------------------
-
-XXX
-
-------------------------------------------------------------------------
-
-AN: Not really much to say about this one. I hope you enjoyed and thanks for all the reviews.

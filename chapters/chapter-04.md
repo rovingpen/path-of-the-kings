@@ -297,7 +297,3 @@ Shirou looked at her for a moment before realizing that he just blurted somethin
 Shirou could only nod in response, internally sighing in relief of being left off the hook even if only temporarily. He should have known that allying himself with Tohsaka could be the worst idea he ever had, but at the same time he couldn't dislike the thought of spending some time with her. There were boys in his school that would gladly give an arm for the privilege he had just been granted. The poor idiots truly had no idea just how close to Hell their imagined Heaven truly was and luckily they probably would never have to find out.
 
 That was a burden that Emiya Shirou would have to shoulder all by himself.
-
-------------------------------------------------------------------------
-
-CHAPTER 4 - END

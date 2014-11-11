@@ -836,19 +836,3 @@ I strongly disagree with this seeing how the Church, much like the Clock Tower, 
 For those who aren't familiar with Tsukihime (heretics the lot of you) Ciel was the previous incarnation of Roa, a vampire that pursued immortality by transferring his soul/memories to specifically selected hosts. Under Roa's possession she slaughtered her family and turned the inhabitants of her village into her slaves. She was killed by Arcueid but having an incredible potential for Magecraft her body was resurrected with her original personality while Roa moved to the next host (the current one).
 
 However, since she's technically still Roa in the eyes of Gaia she's caught in a paradox for which she cannot die while Roa still lives. Every time she's wounded or killed, Gaia reverse her time and restores her to the starting condition. For this reason she doesn't age as well and she's much older (how much it was never specified) that what she appears to be.
-
-------------------------------------------------------------------------
-
-XXX
-
-------------------------------------------------------------------------
-
-**Author Notes:**
-
-I can't believe it's been over three months since the last update. Sure a lot of stuff happened to me in the meantime and this chapter had gone more revisions than any other thus far. Then again the plot is getting complicated, more characters are making their appearances and their actions are having longer lasting repercussion. It's a difficult phase overall.
-
-I can't make promise about update rates at this point. Every time I do it takes more than the previous time to complete a chapter. The only thing I can guarantee is that I'm going to try my best to deliver high quality chapters as soon as possible.
-
-Thank you for your understanding and continued support.
-
-Until the next time.

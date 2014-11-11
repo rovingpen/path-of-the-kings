@@ -533,23 +533,3 @@ And so that which was meant to happen did not come to pass. The pact between the
 Call it a miscalculation of Fate: a chance of one in several billions. An eventuality so remote that even the Gods would have overlooked it.
 
 And so, without anyone even realizing what could have been, the world went down an otherwise impossible path. A path that would change the future of too many people to count.
-
-------------------------------------------------------------------------
-
-XXX
-
-------------------------------------------------------------------------
-
-A/N:
-
-There we go. The long awaited fighting scene.
-
-Before anyone starts whining about the impossibility of Kanshou and Bakuya to be around let me just make something perfectly clear. These two swords, as stated in the chapter itself, are Mystic Codes, not Noble Phantasms.
-
-I don't think it was ever properly explained in the Nasuverse but I think the a Noble Phantasm isn't actually the same weapon wielded by the Heroic Spirit, but rather is very same concept as taken from the Root and then elevated through the power of its legend.
-
-Just like the body of a dead Hero doesn't ascend to the Throne, the original Mystic Code (If such was the origin of the NP) remains in the world and if properly taken care of it can be preserved to the modern era.
-
-That being said I hope you all enjoyed this chapter.
-
-See ya soon.

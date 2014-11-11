@@ -187,11 +187,3 @@ He had promised, even though he didn't understand why he asked such a thing. He 
 Emiya Kiritsugu passing smile was one of accomplishment, after a lifetime of failures. Shirou couldn't help but notice with his tears-blurred vision that his expression was similar to the one he wore when he first saw him admits the flames. A smile of Salvation.
 
 ... Had he been saved again from some peril he couldn't even see yet? He wondered. Certainly there would be enough chances to figure out the answer as he lived up to his initial promise.
-
-------------------------------------------------------------------------
-
-**Author notes:** so here we are with the second chapter. It's completely different from how I had first written it. It actually started with Kiritsugu's death because I didn't want to write Shirou's well known background, showing the differences I've envisioned through flashbacks. Anyway here it is. The grail war is still a few chapters away and by then Shirou will be a lot different from canon skill-wise.
-
-I always thought that for someone who wanted to be a hero so badly, Shirou did very little to achieve that until he found his ass dragged in the war, and by then it was nearly useless. And I'm not talking only about his talent as a Magus but his overall fighting ability. He was good with a bow but he basically never applied it in combat. Not this time. He will still be a talentless Magus but that doesn't mean he won't put the effort to improve in the field and many others as well. He won't be Servant level and Rin will still be capable of whipping the floor with him in a purely magical contest but only there. Chapter is basically written from some scraps of this and the next which means I'll be updating again rather soon. I'll try to keep at least a bi-weekly update rate but no promises.
-
-I sincerely hope you like this chapter. I'll be looking forward to your reviews. Thank you and goodbye.

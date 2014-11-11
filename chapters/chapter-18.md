@@ -649,19 +649,3 @@ Either way, he probably was going to be slapped for his deception. He had better
 That day through classes Shirou felt more under scrutiny than ever, but no matter what he did he couldn't find the source. Was it one of his classmates? Granted, it wouldn't have been the first time someone from school stalked him, but that was because of Tohsaka. After that had been solved it no longer happened, but since he didn't really understand the other boys his age save maybe for Issei, he couldn't tell if there was something going on. His social skills sucked like that and admittedly if it was some of them following him around town he might have not noticed them, but still it didn't seem likely. This kind of focused intent was too strong for any teenager to produce.
 
 It was like being under a surgeon's scalpel, completely void of maliciousness but equally deadly if need be. His instinct screamed at him to stay alert and be ready for anything, and he knew better than to ignore it. If someone were up to something, they wouldn't get him unprepared.
-
-------------------------------------------------------------------------
-
-XXX
-
-------------------------------------------------------------------------
-
-A\\N: Damn it! I had to break the chapter in two again. Seriously, the fight will be next chapter. I swear.
-
-That being said, in this chapter I've fiddled with Nasuverse's universe a little. I don't think I've violated any rule of any sort but I've rather conveyed how I think the background mechanics works.
-
-Let me know what you think,
-
-See ya.
-
-A\\N2: I've been pointed out that Misaki city actually has a stronger leyline than Fuyuki. I've corrected that part to match this info. Thanks to all who pointed it out.

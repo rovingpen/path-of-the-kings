@@ -601,11 +601,3 @@ He left, closing the door behind him. Even when he turned his back on her, he di
 That's what she was thinking when she felt her wards spike, signaling the presence of an intruder. Well, well, well. It looked like someone was coming to throw a wrench into his plans. Perhaps she could turn this to her advantage? It remained to be seen who and how capable the intruder actually was, but if she played her cards right she could get out of there without breaking a sweat.
 
 Grinning wickedly under her hood, she returned to her work. A few modifications were needed if she wanted to exploit the situation. Her Master was about to receive a terrific surprise.
-
-------------------------------------------------------------------------
-
-XXX
-
-------------------------------------------------------------------------
-
-AN: Sorry for the long wait. Life sucks. If you want to discuss this chapter PM or review it (which is better). See ya.

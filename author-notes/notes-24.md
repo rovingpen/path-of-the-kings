@@ -1,0 +1,1 @@
+Whoa! It's been over two months since I last updated this story. Not cool. In my defense I've update my other FSN story twice in the mean time. For the next few months I will stick with this story and I'll try to keep a two-weeks update rate. I'm not promising anything though.

@@ -519,15 +519,3 @@ No, curiously enough his last thoughts were for another boy who had a monster fo
 Tohno Makihisa passed away with a blood-chilling grin, unbefitting a man that had just been mercilessly slaughtered.
 
 And so, with his last breath, the gears of destiny of a boy with death-filled eyes started once more to turn in a slow, merciless spinning motion that would squeeze the blood out of anyone so unfortunate enough to be caught in it.
-
-------------------------------------------------------------------------
-
-XXX
-
-------------------------------------------------------------------------
-
-AN: Put it up in a rush before leaving for work. Not really much to say about this one. I might add another author note depending on the reviews later, but that's it for now. Bring all eventual bitchings to the forum (not the spoiler one)
-
-Thanks for reading.
-
-AN2: Edit: I wrongly assumed that Rin had vampiric ancestry because Zelretch is considered her Ancestor. That was a mistake because Zelretch's disciple was her actual ancestor. I corrected that part. Kudos to blakraven66 for pointing it out.

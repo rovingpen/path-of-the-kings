@@ -595,13 +595,3 @@ They slept peacefully, ignoring the extensive of nightmares that roamed the city
 *Yes, he could definitely live with the weight of his crimes if he could achieve that. He just had to bear with it a little more.*
 
 *Just a little bit more.*
-
-------------------------------------------------------------------------
-
--xXx-
-
-------------------------------------------------------------------------
-
-AN: Well, here we are folks. This is my Christmas gift for you. Many thanks to RavingScholar who has delivered again punctual and flawless editing.
-
-This is it for now. I wish you all very Happy Holidays.

@@ -877,19 +877,3 @@ A bitter feeling rose up into her chest. How long until she could keep her promi
 She crushed those thoughts as well as her uncertainty with the firm resolve of a King. There was no use in losing herself in negative musings. She would seek the best possible outcome from this situation, and if this Grail couldn't fulfill her wish she would certainly move toward the next, as her contract with Alaya would ensure.
 
 That, of course, after smashing to pieces the artifact that dared to deceive her. One way or another she would put an end to the tragedies caused by the Grail of Fuyuki.
-
-------------------------------------------------------------------------
-
-XXX
-
-------------------------------------------------------------------------
-
-AN: Man, this sure was a though chapter to write. Trying to stay true to Rin's and Saber's characters in a new set of circumstances was very difficult, especially for Rin. Like I said in the forum she's a triple layered character who isn't honest even with herself, making writing in her POV a daunting task.
-
-Well, this is it for now.
-
-As usual my thanks go to RavingScholar for a job well done and also to twinkieman92 for helping out several times.
-
-If you enjoyed this chapter is also thanks to them.
-
-That's it for now. See ya.

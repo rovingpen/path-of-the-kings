@@ -1057,19 +1057,3 @@ The simplest things, like a spell for drying clothes weren't something included 
 Of course, he knew enough about the principles of Runes to make up his own spells, tweak a certain type of Boundary Field and some such if needed be, but that would have required several hour of experimentations, and considering the situation at hand made it exceedingly impractical and even more stupid, especially when a good old towel and some rubbing would do the trick.
 
 Resigning himself to his fate, Shirou scooped up the sleeping woman and headed back to his house, wondering if this sudden turn of events counted as being blessed or cursed. Perhaps it was just a matter of perspective, but he couldn't help but think once more that no good deed goes unpunished.
-
-------------------------------------------------------------------------
-
-XXX
-
-------------------------------------------------------------------------
-
-AN: All right. I wanted to write around 5 to 7K word per chapter but this one totally screwed my average. 20k for a single chapter is way over anything I planned to write short of a one shot, so don't expect another chapter this long in a while.
-
-That aside, am I the only one that thinks Shirou would make for a terrific surgeon? With his ability to replicate all the techiques applied to every blade he has seen, Shirou should be capable of jumpstarting his learning process by simply tracing used scalpels. He would still require to learn the basics of anatomy, that's true but he could accelate the progress greatly.
-
-Just a thought.
-
-Anyway thanks for reading and for reviewing.
-
-See ya.

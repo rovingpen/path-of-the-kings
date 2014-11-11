@@ -509,13 +509,3 @@ Gold met green, and even though he had never met her before, never even seen her
 And so, as their eyes remained locked long enough for her to notice it wasn't just a passing glance, Emiya Shirou's brain went into high gear trying to figure out a way to come out of this situation, all the more so now that even Tohsaka had seen him and noticed his shock.
 
 Things never did go as planned, did they?
-
-------------------------------------------------------------------------
-
-XXX
-
-------------------------------------------------------------------------
-
-AN: not much to say about this chapter. Might add other notes later on, but probably not. As usual ask your questions in the apposite forum.
-
-See ya.
