@@ -2,13 +2,11 @@
 
 (Beta: RavingScholar)
 
-Forty year old Ryutaro Dojima was one troubled detective. When he first moved in Fuyuki a couple of years prior, he was quite happy with how quiet the city was. It was the kind of place where he wanted his daughter Nanako to grow: lively and densely populated but without the crime rate of other cities of the same size.
+When Detective Ryutaro Dojima had moved to Fuyuki two years ago, he'd been happy. It was the kind of place where he wanted his daughter Nanako to grow up: lively and densely populated, but without the high crime rate of some other large cities.
 
-In hindsight, he should have known better. Twenty years in the law enforcement department had taught him that just because you don't see something, that doesn't necessarily mean it isn't there. His opinion of the city and its inhabitant had changed drastically in the previous twenty-four months, starting with his colleagues.
+He should have known better. Twenty years in law enforcement had taught him lack of evidence was not evidence of absence. His colleagues were lazy and incompetent. They were all too eager to dump a difficult case on someone else's lap. That was why *he* was investigating Archer, the masked teen vigilante.
 
-Initially, it didn't surprise him that they were somewhat laidback. Besides the few theft and robberies there weren't that many crimes to keep the police forces on their toes. But as time passed, he came to realize that most of his colleagues were lazy and incompetent. Truth be told, he was known to be too serious and inflexible when it came to his job, so his opinion might have been a little biased. But the fact remained that most of his colleagues were way too eager to dump a difficult case on someone else's shoulder. Such was the case with the infamous vigilante dubbed Archer.
-
-The masked teen hero was the fulcrum of Ryutaro's current dilemma and that wasn't limited to the case with his alias printed on it. It appeared that every time the boy was involved or even only supposed to be involved the situation was greatly magnified, starting from within the police department itself.
+The boy complicated every case he touched.
 
 The law's officers took advantage of the boy's exploits when they managed to cover up his involvement while denouncing his action publicly when they couldn't. For over a year they kept denying his existence, until the number of witnesses was too high to continue doing. While Ryutaro couldn't condone Archer's escapades since vigilantism was a crime, he couldn't forgive his colleagues behavior either and he didn't make a secret out of it. To say that he was disgusted was a gross understatement and that, paired with his work ethic, made him a pariah within the department with the sole exception of his kohai Adachi. Of course while his colleagues dislike him with a passion they didn't dare to cross him either. For one, the man was hard as a brick wall and no amount of enmity would so much as make him flinch, and second he had the support of the higher ups for the same reason. All in all, Ryutaro Dojima was a man not to trifle with.
 
