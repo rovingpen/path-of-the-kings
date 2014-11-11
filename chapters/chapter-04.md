@@ -16,21 +16,17 @@ Dojima's laptop froze, beeped, and shut down. "What the hell," he said, when pre
 
 "W-What is it, Dojima?" The scrawny detective asked as he peeked into Dojima's office.
 
-"This blasted thing stopped working. Can you take care of it for me? I'm going to the archive."
+"This blasted thing stopped working. Can you get it fixed for me? I'm going to the archive."
 
-"Uh, okay but... you can use my computer if you need," he offered.
+"Uh, okay, but you can use my computer if you want to," he offered.
 
-"So that you can skim on your own work? Not likely. Besides, I like paper better that these modern pieces of shit that don't work when you need 'em the most."
+"So that you put off doing your own work? Not likely. Besides, I like paper---it's more reliable than these modern pieces of shit."
 
-Truly he would have accepted Adachi's offer if he knew what kind of ordeal was waiting for him.
+Five minutes later he was standing in the open doorway of the archive room with a blank expression and an open mouth. The place couldn't have been cleaned since the case files had been digitized. Cursing his colleagues, but too prideful to go back and eat his word with Adachi, he rolled up his sleeves and began searching for the folder he needed.
 
-He could be found five minutes later by the archive room's door with a blank expression and his jaw hanging loosely in surprise. The archives were, to put it mildly, an outright mess. Apparently, after the various folders had been taken out to be digitalized, nobody bothered to put them back in their proper place. Countless folders laid scattered around with no order to them.
+Sixteen hours, on the dawn of the next day, he emerged with deep bagsunder his eyes. He hadn't found what he's hoped for but his research had been far from fruitless.
 
-Cursing his colleagues even more than he did technology and too prideful to go back and eat his word with Adachi, he rolled up his sleeves and began searching for the folder he needed.
-
-It was the dawn of the following day when he finally came out. Nearly sixteen hours after he first entered. His eyes were circled black and he looked a lot older than the previous day. He hadn't found what he hoped but that doesn't mean his research had been fruitless; quite the opposite in fact. He had a whole different picture to work with. A completely different scenario against which the existence of the Archer made a lot more sense.
-
-The absurdity of a teenager going vigilante in a city as quiet as Fuyuki was the point that made less sense to the tired detective. The boy was too capable to be just a kid living up a childhood dream, but until that point Ryutaro couldn't figure out why someone so young would push himself to acquire such skills when there was no real need for it. Sure, the crimes he prevented there very real, but there wasn't so much apparent criminality in Fuyuki and the neighboring cities to explain something like that.
+A teenager going vigilante in a city as quiet as Fuyuki hadn't made sense to Dojima. The boy was too capable to be just a kid living up a childhood dream, but until that point Ryutaro couldn't figure out why someone so young would push himself to acquire such skills when there was no real need for it. Sure, the crimes he prevented there very real, but there wasn't so much apparent criminality in Fuyuki and the neighboring cities to explain something like that.
 
 Apparent being the keyword. Beneath the surface Fuyuki had a shady background: unexplained deaths, disappearing people, disappearing suspects, disappearing witnesses and disappearing evidence. They weren't so many to draw the attention of the general public or the media, but if someone barely competent within the police ever bothered to look beyond his workload, then he would have noticed a very suspicious trend.
 
