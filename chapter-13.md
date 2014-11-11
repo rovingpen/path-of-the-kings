@@ -8,7 +8,7 @@ Well, perhaps she had more important things to worry about than her level of com
 
 He wasn't, but that didn't really offer her any consolation. Still, there was a single thought about the entire situation that wouldn't leave her alone, and that could very well make a difference in her bid for freedom.
 
-As she expected all the gems she had hidden in her clothes were gone. It was normal that they would be removed, since she could use them simply by vocal activation and without the use of her circuits. Then why hadn't the Servant taken away the gems she had hidden.... *elsewhere*?
+As she expected all the gems she had hidden in her clothes were gone. It was normal that they would be removed, since she could use them simply by vocal activation and without the use of her circuits. Then why hadn't the Servant taken away the gems she had hidden... *elsewhere*?
 
 Sure, just about every Magus would have missed them, but there was no way in hell that Caster, the Servant most proficient in Thaumaturgy, would have missed them.
 
@@ -616,7 +616,7 @@ He lost himself in his reflection on the blood stained blade. He watched it with
 
 ...
 
-.... *Sword?*
+... *Sword?*
 
 ... ... ... ... ... ... ... *Sword?*
 
@@ -680,9 +680,9 @@ Vincent left hand burned, and the mark of his Command Seals faded away, denied b
 
 *... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... \_Statics... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ...* Sword
 
-*\_Statics... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ..... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ...* Swor Sword \_ Sword Sword \_ Sword \_
+*\_Statics... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ...* Swor Sword \_ Sword Sword \_ Sword \_
 
-... *\_Statics... ... ... ... ... ... ... ... ... ... ... ... ... ... ... .... ... ... .. ... ... ... ... ... ... ... .. ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ...* Sword Sword Sword \_ \_ Sword \_ Sword \_ \_ Sword Sword \_Sword Sword \_ Sword \_ Sword \_ Sword \_ Sword \_ Sword Sword Sword \_ Sword \_ Sword \_ Sword Sword \_ Sword \_ Sword \_ Sword \_ Sword \_ Sword Sword Sword Sword \_ Sword Sword \_ Sword \_ Sword Sword Sword Sword Sword Sword \_ Sword Sword Sword \_ Sword Sword Sword Sword \_ Sword Sword \_ Sword Sword \_ Sword Sword Sword \_ Sword Sword Sword \_ Sword Sword \_ Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword
+... *\_Statics... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... .. ... ... ... ... ... ... ... .. ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ... ...* Sword Sword Sword \_ \_ Sword \_ Sword \_ \_ Sword Sword \_Sword Sword \_ Sword \_ Sword \_ Sword \_ Sword \_ Sword Sword Sword \_ Sword \_ Sword \_ Sword Sword \_ Sword \_ Sword \_ Sword \_ Sword \_ Sword Sword Sword Sword \_ Sword Sword \_ Sword \_ Sword Sword Sword Sword Sword Sword \_ Sword Sword Sword \_ Sword Sword Sword Sword \_ Sword Sword \_ Sword Sword \_ Sword Sword Sword \_ Sword Sword Sword \_ Sword Sword \_ Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword Sword
 
 **!SWORD!**
 
@@ -696,7 +696,7 @@ He *knew* it likeithad always been his even though it hadn't. It was like he was
 
 With hands that weren't his, with a sword that was not his own and with skills that he didn't hone, he cut through that which was not meant to be cut. It had taken an entire lifetime, but he did it nonetheless. Such a superb technique would no doubt transcend the ages and become legend.
 
-As such, it needed a name that embodied its sprit, beauty and grace. Of course, considering what had inspired it, it could only be named....
+As such, it needed a name that embodied its sprit, beauty and grace. Of course, considering what had inspired it, it could only be named...
 
 ------------------------------------------------------------------------
 
@@ -718,7 +718,7 @@ Indeed it was. He watched in morbid fascination as his still standing body wobbl
 
 No, he couldn't just give up, could he? With his Rule of Blood attaching his head should be an easy... easy...easy... easy... eeea-
 
-....
+...
 
 ------------------------------------------------------------------------
 
@@ -762,13 +762,13 @@ Shirou nodded in appreciation. He wasn't sure he could deal with four witnesses 
 
 "Wait..." he said to the female Servant, but she paid him no mind and simply disappeared with a mystical sound. "Damn it."
 
-She was gone. Whatever question he had would go unanswered. He had plenty of them, but first....
+She was gone. Whatever question he had would go unanswered. He had plenty of them, but first...
 
 "Ghaaawrg!" he fell on his knees and emptied the contents of his stomach. He had killed a man. He had cut his head from his shoulder like a hot knife through butter. He had killed a person: in self defense, in defense of others but he had still killed nonetheless. A man died by his hands. It was no accident like that time with Sasaki. He had moved with the intent to kill, and that intent turned into reality.
 
 He was now a killer, someone who had taken the life of another. There was no way around that notion. At least... at least Tohsaka and Yukiko were safe now.
 
-How did he do it though? The technique he used wasn't something he had even heard about until that moment and yet.... Yet he knew everything about it. It was a technique that violated the laws of the world by striking from three different directions at the same time. It wasn't a Magecraft or Sorcery, but merely a skill so refined that it slipped past all the conceptions that caged even supernatural strikes.
+How did he do it though? The technique he used wasn't something he had even heard about until that moment and yet... Yet he knew everything about it. It was a technique that violated the laws of the world by striking from three different directions at the same time. It wasn't a Magecraft or Sorcery, but merely a skill so refined that it slipped past all the conceptions that caged even supernatural strikes.
 
 How did he know all of that? How did he manage to replicate the technique that the real Sasaki Kojirou spent his life to perfect? It was like... the sword itself had told him. No, that wasn't true. He knew from the very beginning that Monohoshizao had been used to develop that incredible technique. That information was stored into his mind since the very first time he *Grasped* its structure because he was able to tap into that knowledge without using it again.
 
@@ -934,7 +934,7 @@ Going for the tools that had obviously been used to enact things he would rather
 
 "Trace on," he muttered under his breath and began dwelling into the information that poured into his brain like a river. Everything from its composition to its forging procedure was broken down into information that Shirou's mind absorbed like a sponge. Everything proceeded without a hitch until he moved to analyze in depth the history and the experience the knife had gone through during its existence. A split second after he did that Shirou's eyes shot open in horror and his arm shot out. The knife was sent clattering against the walls as he muttered, "Oh god, oh god, oh god, oh god."
 
-He had to stead himself against a shelf or he would have ended up on the floor. He felt like he had drowned in a sea of blood, and it took him a long moment to get back on his feet. So many people... slaughtered like cattle only to satiate a crazy Magus' thirst for new discoveries. Hundreds.... Hundreds had died screaming under that blade. So much blood, pain and anguish were recorded into it that Shirou was too overwhelmed by it to realize his attempt had been successful until he managed to choke it down.
+He had to stead himself against a shelf or he would have ended up on the floor. He felt like he had drowned in a sea of blood, and it took him a long moment to get back on his feet. So many people... slaughtered like cattle only to satiate a crazy Magus' thirst for new discoveries. Hundreds... Hundreds had died screaming under that blade. So much blood, pain and anguish were recorded into it that Shirou was too overwhelmed by it to realize his attempt had been successful until he managed to choke it down.
 
 On the bright side, seeing in his own particular way what Guilford had done with that tool completely erased whatever inkling of sympathy Shirou might have had for the dead Magus.
 

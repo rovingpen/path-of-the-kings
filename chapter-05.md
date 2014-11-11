@@ -46,7 +46,7 @@ Almost.
 
 *\_ Die!*
 
-*And yet among all of those curses....*
+*And yet among all of those curses...*
 
 *\_\*\*\*e \*e!*
 
@@ -74,7 +74,7 @@ He let the power flow through him like water, circulating through his body with 
 
 Normally, since his abilities were based on an extremely refined micromanagement of his energies, he only needed to active one of his circuits. However, since there was always the chance that he might needed to use more at a moment's notice, he made sure to exercise them regularly.
 
-One. Two. Three.... Ten... Twenty.... Twenty-seven.
+One. Two. Three... Ten... Twenty... Twenty-seven.
 
 Twenty-seven channels for his magic to express itself and give shape to his mysteries. More than the average number that could be found in most Magi even if the quality wasn't the best.
 
@@ -140,7 +140,7 @@ She should have...but she couldn't. She couldn't take the easy way out. Not unti
 
 So long as she could return to him.
 
-*'Senpai....'*
+*'Senpai...'*
 
 ...
 
@@ -284,11 +284,11 @@ Oh. "Issei, what is this all about?" He asked, finally realizing, and hoping, th
 
 "I'm sorry," he quickly added. "It's not my place to question your relationships. If anyone knows what he's doing among the students here that would be you."
 
-"I'm not sure if you are giving me too much credit of too little sometimes, Issei. Nevemind. It's not a problem if you were looking out for me. Now, the reason I met with Tohsaka is...."
+"I'm not sure if you are giving me too much credit of too little sometimes, Issei. Nevemind. It's not a problem if you were looking out for me. Now, the reason I met with Tohsaka is..."
 
 ------------------------------------------------------------------------
 
-<span style="text-decoration: underline;">Five minutes later....</span>
+<span style="text-decoration: underline;">Five minutes later...</span>
 
 "I see," Issei said with a nod of his head after hearing Shirou's explanation. "As I suspected! If it wasn't for the fact that you would help her in any case, she would have undoubtedly used her charms to lure you into doing her bidding."
 
@@ -300,7 +300,7 @@ Twice.
 
 Shirou raised a very good point. He was supposed to judge people by their actions. But his father also taught him to trust his instincts.
 
-"You have a point there. Actually she never did anything wrong, unless you count faking her character at school. It's just that she gives me a strange.... vibe I think is the correct term. Yes, she gives me a bad vibe."
+"You have a point there. Actually she never did anything wrong, unless you count faking her character at school. It's just that she gives me a strange... vibe I think is the correct term. Yes, she gives me a bad vibe."
 
 Shirou arched an eyebrow. Could it be...?
 
@@ -430,7 +430,7 @@ Never once had he thought that one day he would be walking around town with Tohs
 
 The latter was more probable, as he didn't find the slightest tinge of fun in the thought of spending time with that woman.
 
-Rationally he knew that he had no reason to be so wary of her and he loathed himself for that. Not even the mask she wore at school justified such distrust on his part, but when he was in her presence he never failed to feel like he was about.... to be burned... or frozen... or buried... or drowned... or blown away.
+Rationally he knew that he had no reason to be so wary of her and he loathed himself for that. Not even the mask she wore at school justified such distrust on his part, but when he was in her presence he never failed to feel like he was about... to be burned... or frozen... or buried... or drowned... or blown away.
 
 Sometimes everything at the same time.
 
@@ -482,7 +482,7 @@ What was it again?
 
 Ah, right.
 
-'...*. Caster....'*
+'...*. Caster...'*
 
 ------------------------------------------------------------------------
 

@@ -150,7 +150,7 @@ He sighed as he pondered just how far his goal was. Well, no use in sulk over th
 
 He brought Kuzuki in an empty room and proceeded to remove his wet clothes. He was in the middle of removing his shirt when the teacher's eyes snapped open and focused on Shirou like piercing daggers.
 
-Awkward silence....
+Awkward silence...
 
 "Emiya-san," Kuzuki said making Shirou jump away.
 
@@ -160,17 +160,17 @@ Awkward silence....
 
 "Well that's good," Shirou commented.
 
-... More awkward silence....
+... More awkward silence...
 
 "Sensei...," Shirou began. "What happened? Who were those men? Who... are you really?"
 
 Kuzuki's eyes returned to Shirou and stared.
 
-....
+...
 
-.... ....
+... ...
 
-Too much awkward silence....
+Too much awkward silence...
 
 "They were murderers. As I am."
 
@@ -197,7 +197,7 @@ Silence again. For the first time an emotion showed on the man's face. Confusion
 
 Why had he gone against his *comrades*? What possessed him to refuse the orders? He didn't know. No, even if he couldn't properly feel his own emotions he logically knew the answer.
 
-"Because I.... didn't want to be a tool anymore."
+"Because I... didn't want to be a tool anymore."
 
 Again there was no emotion in his voice. He didn't even say that he didn't want to kill anymore. It wasn't regret that pushed him to turn against his allies. It was rebellion. It the hollow shell that was Kuzuki Soichiro, for some unknown reason a spark still burned. Something that made him less of a weapon and more of a man.
 
@@ -235,7 +235,7 @@ Propped on his elbows Kuzuki stared at him once more. For someone so void of emo
 
 "No. My skills are more simply more polished, with no useless movement. As such they look faster and stronger, but your uncoordinated style of fighting is nothing like that. What are you Emiya Shirou?"
 
-"Equivalent exchange?" Shirou half asked, half pondered to himself. Not for a single moment he considered the fact that he saved the man's life something he already owed him for. He just wasn't wired like that. "Fair enough. A secret for a secret. I am what it's called a Magus...."
+"Equivalent exchange?" Shirou half asked, half pondered to himself. Not for a single moment he considered the fact that he saved the man's life something he already owed him for. He just wasn't wired like that. "Fair enough. A secret for a secret. I am what it's called a Magus..."
 
 It was Shirou turn to tell his story this time. He skipped over the details of his upbringing but still told him enough to make him understand the motives behind his actions as well as the reasons for his abilities. As expected Kuzuki betrayed no emotions whatsoever and simply accepted Shirou's explanation as the truth. He was capable to understand if someone lied to him, especially if the topic was so unbelievable. The complete lack of deceit in Shirou's body language, paired with what he had witnessed, combined with the fact that he had saved his life was enough to make him believe what he was hearing.
 
@@ -307,13 +307,13 @@ It was the day when Shirou learned about the Holy Grail war. About Seven Master 
 
 "That is... over simplification, Shirou. Death isn't... the scariest thing in the world. Tell me, when you where surrounded by the fire. When you knew you didn't have any hope of survival what is that scared you the most? Knowing that you were about to die of the pain and hopelessness that you felt in that moment?"
 
-"I... wanted to live" Shirou answered. " I desperately wanted to live but.... I wanted it to be over. I wanted the pain to go away. The burning and the chocking and..."
+"I... wanted to live" Shirou answered. " I desperately wanted to live but... I wanted it to be over. I wanted the pain to go away. The burning and the chocking and..."
 
 "Yes. In that very moment what scared you the most was life itself. Death can be a much more merciful mistress compared to Life."
 
 "But... but you saved me. You saved and I'm happy to be alive now."
 
-"Yes. Because I took you away from the things that were hurting you, scaring you but.... Sometime the things we fear the most are inside of us. Part of us. So ingrained into our own lives that we can't exist without them, but we don't want to live with them either."
+"Yes. Because I took you away from the things that were hurting you, scaring you but... Sometime the things we fear the most are inside of us. Part of us. So ingrained into our own lives that we can't exist without them, but we don't want to live with them either."
 
 "Are you?" Shirou asked. "Are you scared of your life up to the point that you want to die? Is *Death* your *Salvation*?"
 
@@ -323,7 +323,7 @@ It was the day when Shirou learned about the Holy Grail war. About Seven Master 
 
 "I... have done many terrible things that I came to regret. I took countless lives for the sake of saving even more lives. Because Death is not such a scary thing, but... I was conceited. I didn't realize that for nearly every life I took somebody was suffering for the loss. For every life I saved I condemned somebody to live with in pain and sorrow. I've killed and killed and killed. And the only thing I had on my hands was blood. In the end the people I've saved are those I've killed, instead of those I've spared. I've brought no happiness into the world. No joy. I've only destroyed. My actions haven't brought a single smile."
 
-"Dad...." Shirou began but Kiritsugu continued.
+"Dad..." Shirou began but Kiritsugu continued.
 
 "Until we met I've only brought death, because I knew that it wasn't the worst possible evil, but... It was an evil nonetheless. But then... then I saved you and that saved me in return. The first person I've saved not by killing somebody else, even if I was involved in the cause of the disaster." He paused for a moment for breath. "Still the weight of the things I did is crushing me, haunting my dreams, wearing me down day after day. I can't undo the past. The lives I've taken cannot be restored. You saved me, Shirou, from being nothing but a murderer, but only death will free me from the burden I've put on my shoulders in the name of my misguided conceptions." At this point he took another moment to organize his thoughts.
 

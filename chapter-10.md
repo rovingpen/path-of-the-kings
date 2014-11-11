@@ -92,7 +92,7 @@ Well, if arrows and fists didn't work maybe words would. Perhaps he could provok
 
 "I am. I spent a fortune in time, money and blood to get my hands on this piece of art, and I've spent all of my life mastering his techniques. I'm only missing the ultimate one, but it is said to be a technique that could rival Gods'. Nothing like that can be obtained easily."
 
-Even to Shirou, a person who knew more about the world than most common people, that sounded like a ridiculous statement, and yet....
+Even to Shirou, a person who knew more about the world than most common people, that sounded like a ridiculous statement, and yet...
 
 ... he couldn't shake the feeling that there was some truth to that.
 
@@ -120,7 +120,7 @@ He didn't know how the boy in front of him could be so fast and strong, and fran
 
 -oOo-
 
-This wasn't going anywhere. The best Shirou could hope when fighting in close quarters with the formidable swordsman was to avoid being hit. There wasn't a single hole in his guard that he could exploit, no way he could overcome the immense gap in skills. Therefore....
+This wasn't going anywhere. The best Shirou could hope when fighting in close quarters with the formidable swordsman was to avoid being hit. There wasn't a single hole in his guard that he could exploit, no way he could overcome the immense gap in skills. Therefore...
 
 ... therefore he had to find a way to win without having to.
 
@@ -128,7 +128,7 @@ Dodging yet another powerful but graceful swing, Shirou leapt away from his foe.
 
 "Admirable," he said never once dropping his guard, "never before I've faced an opponent that could avoid my blade for so long. If I didn't have the advantage of reach, this battle would already have turned in your favor. However," again he rose his sword to his eyes, "it's time to end this."
 
-*'What to do, what to do, what to do, what to do? If only there was something I could.... Oh!*'
+*'What to do, what to do, what to do, what to do? If only there was something I could... Oh!*'
 
 ------------------------------------------------------------------------
 
@@ -480,7 +480,7 @@ In that moment he noticed her presence and his eyes snapped open, his body tense
 
 "Good... good..."
 
-".... You kept your word," she said watching him slump on the ground.
+"... You kept your word," she said watching him slump on the ground.
 
 "Yes... Yes I did... I... We saved everyone didn't we?"
 
@@ -532,7 +532,7 @@ He couldn't help but smile while he recalled her words.
 
 His brain finally processed exactly what she said to him as he left and a single word escaped his mouth, still frozen in an idiotic looking smile.
 
-"Fuck...."
+"Fuck..."
 
 ------------------------------------------------------------------------
 

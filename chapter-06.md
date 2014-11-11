@@ -432,7 +432,7 @@ The man took put the cell phone and dialed the usual number. He waited for the s
 
 *CLICK!* He abruptly ended the conversation. The man remained alone with his thoughts in the dark room.
 
-"Are you going to make my life less dull.... Archer?"
+"Are you going to make my life less dull... Archer?"
 
 ------------------------------------------------------------------------
 

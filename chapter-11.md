@@ -584,7 +584,7 @@ That was too much. That was a slap in her face. He knew who she was and he had g
 
 Pathetic little man. He looked down on women, yet he bet the future of his entire craft on one of them.
 
-No more. As soon as he lowered his guard she would gut him and be done with it. She didn't want to die, but it was a preferable option to the alternative. Besides, even if he died there was still a chance for her to make it. She'd just have to find a proper place and....
+No more. As soon as he lowered his guard she would gut him and be done with it. She didn't want to die, but it was a preferable option to the alternative. Besides, even if he died there was still a chance for her to make it. She'd just have to find a proper place and...
 
 Her line of thought was interrupted when the door opened and the hateful man walked in.
 

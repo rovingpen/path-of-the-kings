@@ -214,7 +214,7 @@ The Executor just stared at him, as if trying to measure the true strength of hi
 
 "I've grown tired of dealing with the two of you. Disappear from my sight," she ordered, glaring at them. "If either of you ever give me reason to come looking for you, I won't be inclined to let you go a second time."
 
-"Uh.... Thanks?" they both replied, not entirely able to believe this sudden turn of events.
+"Uh... Thanks?" they both replied, not entirely able to believe this sudden turn of events.
 
 Ciel turned away and disappeared in the darkness of the alley, not bothering with any acknowledgement. She was already gone from their sight when her parting words reached them.
 
@@ -250,7 +250,7 @@ One of those auras was unmistakable to the former host of Roa.
 
 ------------------------------------------------------------------------
 
-"What.... What just happened?" the teen vampire asked with a trembling voice.
+"What... What just happened?" the teen vampire asked with a trembling voice.
 
 "I'm not really sure but... I guess we got through to her," Shirou replied, breathing heavily.
 

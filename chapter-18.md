@@ -598,7 +598,7 @@ Apparently so, she mused with a soft sigh. Too bad, she was sort of looking forw
 
 She turned around and resumed her walk at a faster pace, eyes closed in a pained grimace as an embarrassed blush covered her face.
 
-"But Tohsaka...."
+"But Tohsaka..."
 
 "I'm going to be late for school," she shouted back. Damn, she hated being like that with him of all people."
 

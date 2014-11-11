@@ -532,7 +532,7 @@ And she hated it, she hated, she hated it, she hated *her*!
 
 Why did she have to appear and take him away from her? Sakura was there first. What right did Megissa have to be allowed to know his secrets while she was left out? It wasn't fair, it wasn't fair, it wasn't fair *at all*!
 
-***If only she just disappeared....***
+***If only she just disappeared...***
 
 No! No, she shouldn't have thoughts like that. Regardless of the circumstances, Sakura knew that she had no claim over him. Sullied as she was, it was better if she didn't get any closer to him than she already was. She knew that better than anyone, and yet...
 

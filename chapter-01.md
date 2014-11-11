@@ -46,7 +46,7 @@ Shirou's eyes snapped open and stared in the blank white in front of him. His bo
 
 "Just Shirou? No family name?"
 
-"I...," Shirou stopped and thought but all he could remember was the raging fire. "I can't remember.... Sorry."
+"I...," Shirou stopped and thought but all he could remember was the raging fire. "I can't remember... Sorry."
 
 "Don't worry about it. I'll sort things out," he answered, never losing his smile. Shirou nodded. He trusted Kiritsugu. Why shouldn't he? He closed his eyes and sleep claimed him again.
 
@@ -92,7 +92,7 @@ All in all Shirou's life was pretty good every day. The nights, however, were no
 
 *A tower stood in front of him. Dark. Ominous. He had seen it before, though he couldn't remember where or when. It filled him with \*\*\*\* and \*\*\*\*\*\*\*. Whatever it was its nature was perverse and twisted. He wanted to leave, to turn around and run but his legs were frozen. All he could do was watch it. And being watched in return.
 
-It was alive. He knew as much. He could almost see \*\*\*\*\*\* floating in the dark sphere that hovered above it. It had no eyes but it looked at Shirou like he had been denied. Shirou knew, if it had a mouth it would speak, and its words would have been dark curses for it was \*\*\*\*\* \*\*\*\*. Its existence was hate. Its purpose was \*\*\*\*\*\*\*. Given the chance it would reach out and \*\*\*\*\* him apart, \*\*\*\*\*\*\* his mind, \*\*\*\*\*\*\* his soul. If it only had the chance....*
+It was alive. He knew as much. He could almost see \*\*\*\*\*\* floating in the dark sphere that hovered above it. It had no eyes but it looked at Shirou like he had been denied. Shirou knew, if it had a mouth it would speak, and its words would have been dark curses for it was \*\*\*\*\* \*\*\*\*. Its existence was hate. Its purpose was \*\*\*\*\*\*\*. Given the chance it would reach out and \*\*\*\*\* him apart, \*\*\*\*\*\*\* his mind, \*\*\*\*\*\*\* his soul. If it only had the chance...*
 
 ------------------------------------------------------------------------
 
@@ -162,7 +162,7 @@ Shirou watched his father pensive expression. It looked a lot like Sakura's when
 
 In that very moment Shirou had an epiphany and the words rolled out of his mouth with naturalness. "Don't worry dad. I'll become a hero in your place," he stated in a confident voice.
 
-Kiritsugu chuckled at his son's antics for a moment before meeting his eyes again. What he saw in there.... Determination. Convintion.
+Kiritsugu chuckled at his son's antics for a moment before meeting his eyes again. What he saw in there... Determination. Convintion.
 
 "Shirou," he began his more serious than his son had ever heard. "Do you want me to teach you? Magic, that is?"
 

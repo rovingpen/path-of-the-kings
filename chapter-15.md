@@ -452,7 +452,7 @@ He had hoped that Caster could, with her knowledge of superior Magecraft, halt t
 
 "Lead the way," Caster agreed.
 
-"By the way, a friend of mine lives here...."
+"By the way, a friend of mine lives here..."
 
 ------------------------------------------------------------------------
 
@@ -754,7 +754,7 @@ And yet... Fujimura-sense kept stealing glances at Shirou every now and then whi
 
 Perhaps she was just reading too much into it? Yes, that was probably the case. Fujimura-sensei was probably worried that Shirou would try to emulate the masked boy. It was a understandable concern on her part, considering that Shirou was all too prone at getting into trouble for other people...
 
-.... and that he was very good with bow and arrow...
+... and that he was very good with bow and arrow...
 
 ... and he was extremely fit for his age...
 

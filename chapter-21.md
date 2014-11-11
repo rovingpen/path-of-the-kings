@@ -334,7 +334,7 @@ Shirou fell on his back, both cheeks alight from the abuse he had willingly take
 
 "How dare you? How dare you? How dare you even insinuate that I wouldn't want to be your big sis anymore?" she raged in full tiger mode, having jumped to her feet and staring down at his charge with fiery eyes.
 
-".... Uh?" he mumbled incoherently. "Taiga, I killed a man."
+"... Uh?" he mumbled incoherently. "Taiga, I killed a man."
 
 "And I hate it! I hate it, I hate, I hate it**!**" she all but roared, causing the even walls to tremble. However her rage soon deflated and her shoulders slumped, "but I hate even more that you would think that just because of that I wouldn't want to be your sister anymore. I should," she hiccupped, "I should beat the stupid out of you, you idiot."
 

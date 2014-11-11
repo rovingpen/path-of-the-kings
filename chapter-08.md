@@ -186,7 +186,7 @@ His initial suspicions that Archer could be somewhat aware of these machinations
 
 It was like he was certain that this seemingly all-powerful group wasn't a threat to him. How could it be? Certainly, if they wanted to silence everyone who had even the slightest knowledge about them they would go after him too, right?
 
-Unless....
+Unless...
 
 "... You're one of these people. This group... you're one of them."
 

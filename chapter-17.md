@@ -608,7 +608,7 @@ He had somehow made the impossible possible. Something that everyone believed to
 
 "You have a talent for Creation, Shirou," she explained. "A rare talent if I do say so myself."
 
-"Creation?" he tilted his head. "I didn't create anything. I just... carbon copied something that was already there. I.... faked it."
+"Creation?" he tilted his head. "I didn't create anything. I just... carbon copied something that was already there. I... faked it."
 
 "Yes, yes," she replied with a dismissing wave of her hands. "This definitely counts as a forgery, but even forgery requires talent in Making. This certainly changes everything."
 

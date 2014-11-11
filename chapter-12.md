@@ -342,7 +342,7 @@ Rin paled. She was so white that she looked like she had no longer any blood in 
 
 "I refuse," Rin growled. "No matter what happens I won't give in."
 
-"You are welcome to try. Let us see if you are going to be of the same opinion in a month. In the meantime...."
+"You are welcome to try. Let us see if you are going to be of the same opinion in a month. In the meantime..."
 
 He stopped whatever he was about to say, eyes wide. His gaze moved sharply from Rin to the only door of the room.
 

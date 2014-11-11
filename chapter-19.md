@@ -78,7 +78,7 @@ While not in agreement with the elders, Waver believed that on the matter of sol
 
 Waver did realize his error rather quickly, though he could hardly call himself proud of it. After all, it didn't do him any good to understand his mistake as his body grew progressively numb and as the still half filled glass slipped from his weakening grasp.
 
-"You...." he growled at the Chinese man who moved to support him.
+"You..." he growled at the Chinese man who moved to support him.
 
 "My apologies, Mr. Waver," the man said as he helped him to sit on the sofa, "but we have received different orders about Emiya."
 
@@ -258,7 +258,7 @@ Still, good news aside, the Chinese-looking man was getting closer and closer, s
 
 However the increased number of bullets coming in his direction seemed to be only a minor nuisance for the falchion-wielding man, though it forced him to dodge in even wider movement.
 
-"Aliens or whatever..." Dojima growled as it became clear that his current firepower wasn't going to cut it and the killing blade drew closer. When both guns again clicked empty, Dojima let them fall as before, once more putting his hands under his coat and behind his back. There was a pang of satisfaction in Dojima's chest when the Chinese guy's eyes widened and his complexion paled as he found himself on the business end of a pair of Uzi. ".... DON'T UNDERSTIMATE THE POWER OF THE POLICE!"
+"Aliens or whatever..." Dojima growled as it became clear that his current firepower wasn't going to cut it and the killing blade drew closer. When both guns again clicked empty, Dojima let them fall as before, once more putting his hands under his coat and behind his back. There was a pang of satisfaction in Dojima's chest when the Chinese guy's eyes widened and his complexion paled as he found himself on the business end of a pair of Uzi. "... DON'T UNDERSTIMATE THE POWER OF THE POLICE!"
 
 His roar of fury was only covered by the sound of his weapons showering his opponent with bullets in an arc so spread out that even for him it was impossible to dodge entirely. The man had only time to cross his arms in front of his face, using the flat of his sword as a makeshift shield, as several bullets impacted on his body and sunk under his clothes and, hopefully, flesh.
 

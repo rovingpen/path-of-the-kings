@@ -264,7 +264,7 @@ He stepped toward the still crouched form, sword lifted above his head to delive
 
 Shirou stepped back in shock, Monohoshizao shattered.
 
-"It hurts... It hurts.... It hurts."
+"It hurts... It hurts... It hurts."
 
 The Dead couldn't speak. They could only seek out blood, unaware of everything, unknowing even of their own miserable condition. The mindless thralls could not express themselves. The only undead that possessed the ability to speak were... the Dead Apostles themselves.
 
@@ -694,7 +694,7 @@ Funny, he pondered while on the ground with death staring him right in the face,
 
 He didn't regret his choices. Even with his life about to end, he didn't think he had made the wrong call in siding with Yumizuka. But still, there was a bitter taste his mouth. He wouldn't be able to keep his promise after all.
 
-*'Medea.... I'm sorry.'*
+*'Medea... I'm sorry.'*
 
 The blade flashed down.
 

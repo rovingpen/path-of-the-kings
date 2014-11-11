@@ -30,7 +30,7 @@ Blink, breathe... Blink, breathe.
 
 *He* had a body!
 
-No.... it wasn't quite *his* as it was HIS. *He* inhabited it, *he* saw the world through it, but could not interact with nor control it.
+No... it wasn't quite *his* as it was HIS. *He* inhabited it, *he* saw the world through it, but could not interact with nor control it.
 
 ...Until now.
 
@@ -180,7 +180,7 @@ But that was for later. Now it was time for yet another portion...
 
 ------------------------------------------------------------------------
 
-Shirou didn't quite know what to think. He was quite relieved that Caster had reacted positively to his help and his method to replenish her Prana. He was even happier when he managed to overcome her reticence in having breakfast with him, but....
+Shirou didn't quite know what to think. He was quite relieved that Caster had reacted positively to his help and his method to replenish her Prana. He was even happier when he managed to overcome her reticence in having breakfast with him, but...
 
 Where was she putting all of that food?
 
@@ -314,7 +314,7 @@ And more importantly... was he just out of his fucking mind?
 
 No, no, no. He had to stay calm and think this through before going off the deep end. He had to go back home, get some proper sleep and then try to remember all he could about the previous night. If necessary he would visit a therapist, a hypnotist or whatever and have this mess sorted out.
 
-Starting the engine he sped down the road without bothering to look back in the rear mirror. If he did he might have seen his prime suspect leaving his house accompanied by a woman with strangely pointed ears....
+Starting the engine he sped down the road without bothering to look back in the rear mirror. If he did he might have seen his prime suspect leaving his house accompanied by a woman with strangely pointed ears...
 
 ------------------------------------------------------------------------
 

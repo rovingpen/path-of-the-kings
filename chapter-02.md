@@ -164,7 +164,7 @@ Still, that made him think about the girl once again. He almost hadn't recognize
 
 Being an unknown factor, untraceable and unpredictable, gave him the upper hand in nearly every situation as proven the previous evening. If those thugs had expected him and attacked him at once he wouldn't have been able to dispose of them as easily. His sudden appearance and their ignorance of his actual skills had offered him an easy victory.
 
-He pushed the thoughts away and placed an hand on Issei's shoulder in a comforting manner, walking with him to his next period. If the poor guy only knew how many troubles Tohsaka and he could actually bring forth....
+He pushed the thoughts away and placed an hand on Issei's shoulder in a comforting manner, walking with him to his next period. If the poor guy only knew how many troubles Tohsaka and he could actually bring forth...
 
 ------------------------------------------------------------------------
 
@@ -338,13 +338,13 @@ She stepped between them to proceed and as she was right beside Shirou she whisp
 
 "Wait... You aren't telling me that she would actually do something to... physically take me out of the *competition*?" He asked while knowing how ridicules it sounded to a normal person. While Japanese culture was heavily based on personal competitiveness both inside and outside school, not many would actually harm a fellow student just to be ranked first at the exams. To be a Magus, however, you had to be a little screwed up in the head to begin with.
 
-.... Could Tohsaka actually be up to something unsavory for him?
+... Could Tohsaka actually be up to something unsavory for him?
 
 "I don't think she would go as far as intentionally harming you, but she has plenty of guys willing to do anything just to catch a glimpse of her attention. If she accidentally lets slip out that she's angry with you some of her less savory admirers might target you just for that purpose. And we both know how that will end in your case."
 
 Shirou just groaned. What had he done to deserve that situation? Was it true then, that no good deed went unpunished? Resigning himself to deal with the situation as it came he turned around and left with Issei. Hopefully his busy day would distract him from the latest events.
 
-.... Hopefully.
+... Hopefully.
 
 ------------------------------------------------------------------------
 

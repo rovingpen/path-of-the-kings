@@ -292,7 +292,7 @@ Shirou looked at her for a moment before realizing that he just blurted somethin
 
 "It-it can't be helped," he protested waving both hands in front of his face. " I'd have to be both deaf and blind not to hear what they constantly talk about."
 
-"Hmmm....," she looked at him through narrowed eyes. "Well I guess that makes sense," she said with a falsely sweet smile. "Though I'm sure we'll have the chance to discuss what else you know about me in the future, right Emiya-kun?"
+"Hmmm...," she looked at him through narrowed eyes. "Well I guess that makes sense," she said with a falsely sweet smile. "Though I'm sure we'll have the chance to discuss what else you know about me in the future, right Emiya-kun?"
 
 Shirou could only nod in response, internally sighing in relief of being left off the hook even if only temporarily. He should have known that allying himself with Tohsaka could be the worst idea he ever had, but at the same time he couldn't dislike the thought of spending some time with her. There were boys in his school that would gladly give an arm for the privilege he had just been granted. The poor idiots truly had no idea just how close to Hell their imagined Heaven truly was and luckily they probably would never have to find out.
 
