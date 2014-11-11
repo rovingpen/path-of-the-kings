@@ -1,2 +1,2 @@
-![](images/cover.jpeg)
+![](../images/cover.jpeg)
 
